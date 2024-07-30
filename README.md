@@ -4,7 +4,6 @@
 
 <img src="https://64.media.tumblr.com/6d40f310c4f349f9b75f08752bbda165/46505ae1dd62b12e-87/s100x200/968334e5d82167d97f15eef241ecfe45359eee4a.gifv" width="30" height="30" /> 𝙍𝙀𝘼𝘿 𝙈𝙔 𝙇𝙄𝙉𝙆𝙎 𝙁𝙊𝙍 𝙈𝙊𝙍𝙀 𝙄𝙉𝙁𝙊 <img src="https://64.media.tumblr.com/154091637a79660eaeb1a62323a0ee46/363ef03bdd19030a-36/s100x200/36ea4c363da411323ea6e83a9b614b49e203d083.gifv" width="30" height="30" />
 
-
 <img src="https://64.media.tumblr.com/58298a8a3954059c61834fcf48277412/fccafe4fdf812857-e1/s250x400/2ebad36fb3a8bd43fb5ec333f40fc90cf33f3ed3.gifv" width="30" height="30" /> 𝙐𝙎𝙀 𝙏𝘼𝙂 𝙏𝙊𝙉𝙀𝙎 𝙒𝙄𝙏𝙃 𝙈𝙀 𝙋𝙇𝙀𝘼𝙎𝙀 𝙋𝙇𝙀𝘼𝙎𝙀<img src="https://64.media.tumblr.com/841488eae6a70931919a267846fee496/c02ae76db2cfa586-3c/s75x75_c1/f05f586913f24bed000035db7432762007f27fec.gifv" width="40" height="40" />
 
 
