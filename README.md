@@ -18,6 +18,9 @@
 <img src="https://64.media.tumblr.com/d99330ed8443343ae232b9f571a4a1ca/19bf44ced24923cd-18/s100x200/1e41c0cf2c8726420ca3c902765b89430cbb6cbc.gifv" width="" height="" />  <img src="https://64.media.tumblr.com/4b0f67b3f66f9154f46485aeabf2573e/19bf44ced24923cd-d9/s100x200/4c330271f979440a97a94918ed3751b7549b9bdf.gifv" width="" height="" />  <img src="https://64.media.tumblr.com/a6f18604d1cb8590107e9dbc899ce724/19bf44ced24923cd-d7/s100x200/885de00b3365fbeabe8827a8dc25c36d9f0eda26.gifv" width="" height="" /> <img src="https://64.media.tumblr.com/1e46eff0e57bb5f6d2c843f7f97e140e/19bf44ced24923cd-86/s100x200/40073837a9e6e3e3dcfdbc7f64857be45a07937c.gifv" width="" height="" />
 
 <img src="[https://s7.ezgif.com/tmp/ezgif-7-3300260648.gif](https://watermelon.crd.co/assets/images/gallery15/d9a5aca2.gif?v=6332de85)" width="" height="" /> **UVULUX IS SO COOL GUYS!! :D** 
+#
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=313gi53l5bkngbi23l7qdza4t6ha&cover_image=0dUnW52SwzwPEAHS1oM9xT?si=69da4f28bc874fc7=default&show_offline=true&background_color=121212&interchange=true)](https://github.com/kittinan/spotify-github-profile)
 
 <!---
 AlexShads/AlexShads is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
