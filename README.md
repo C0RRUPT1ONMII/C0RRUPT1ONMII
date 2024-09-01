@@ -1,4 +1,4 @@
-<img src="https://64.media.tumblr.com/e8b73f9b61eca4f6bfef591c339d4abd/tumblr_p32ssmM7F11s0714io1_540.gif" width="" height="" />  
+<img src="https://64.media.tumblr.com/e8b73f9b61eca4f6bfef591c339d4abd/tumblr_p32ssmM7F11s0714io1_540.gif" width="481" height="398" />  
 
 # 
 
