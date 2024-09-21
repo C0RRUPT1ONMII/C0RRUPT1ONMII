@@ -1,6 +1,4 @@
-<img src="https://64.media.tumblr.com/88289ef9f282ab5580e9c09bc7b27807/253bbbd7cce7c9f7-f7/s640x960/9c87ca2ab1a4d953c7a066ef13c267738004a5a6.pnj" width="" height="" />  
-
-# 
+<img src="https://64.media.tumblr.com/d2bd4f7211a82b3e37b7155895899d8d/5edbed985407fb15-04/s250x400/5606d4684e786ac097eef59c5dcfc1d5b3239e32.gifv" width="" height="" />  <img src="https://64.media.tumblr.com/b7719e9dff0e3ccc55ac355ca83354cd/5edbed985407fb15-5f/s250x400/e156e29d6ccf0d48b42804cd6a1dee2681a922fd.gifv" width="" height="" /> <img src="https://64.media.tumblr.com/d2bd4f7211a82b3e37b7155895899d8d/5edbed985407fb15-04/s250x400/5606d4684e786ac097eef59c5dcfc1d5b3239e32.gifv" width="" height="" /> 
 
 If your here from `ponytown` then... uh- hello ig....heh. 
 Feel Free to `interact` with me, I love meeting New people!
@@ -19,6 +17,7 @@ You can ask me for `inspo`, I have no problem with that!**
 **if you wanna know `more about me`
 then read my `links` if you want too <3**
 
+<img src="https://64.media.tumblr.com/d2bd4f7211a82b3e37b7155895899d8d/5edbed985407fb15-04/s250x400/5606d4684e786ac097eef59c5dcfc1d5b3239e32.gifv" width="" height="" />  <img src="https://64.media.tumblr.com/b7719e9dff0e3ccc55ac355ca83354cd/5edbed985407fb15-5f/s250x400/e156e29d6ccf0d48b42804cd6a1dee2681a922fd.gifv" width="" height="" /> <img src="https://64.media.tumblr.com/d2bd4f7211a82b3e37b7155895899d8d/5edbed985407fb15-04/s250x400/5606d4684e786ac097eef59c5dcfc1d5b3239e32.gifv" width="" height="" /> 
 #
 
 
