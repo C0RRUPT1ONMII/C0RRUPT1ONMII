@@ -7,7 +7,7 @@ Feel Free to `interact` with me, I love meeting New people!
 
  **I  can go *Afk* Alot without warning, So I apologize for that**
 
-- If your a `Proshipper/Darkshipper` and a `Tcoaal, Obsessive Streamer Overload` fan, Please `DO NOT` even interact or Talk with me.
+- If your `Any Type Of Proshipper` and a `Tcoaal, Obsessive Streamer Overload` fan Please `DO NOT` interact or Talk with me.
 
 **Do `NOT COPY` my skins.. This happends all the time, Mostly on Spanish Server...
 You can ask me for `inspo`, I have no problem with that!**
