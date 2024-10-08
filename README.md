@@ -1,4 +1,4 @@
-<img src="https://pa1.aminoapps.com/7502/c5f33bf228c61d5c648d00131484da257dc0d269r1-622-418_hq.gif" width="" height="" />
+<img src="https://media0.giphy.com/media/7XADiFeY6fhnItpkiA/giphy.gif?cid=6c09b952c8a7yl8yr2qwv8nbwvc1e26b7ihh6fx28gaw7n5h&ep=v1_internal_gif_by_id&rid=giphy.gif&ct=g" width="" height="" />
 
 #
 
