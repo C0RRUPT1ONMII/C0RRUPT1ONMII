@@ -1,4 +1,6 @@
-<img src="https://64.media.tumblr.com/b5ef6d7514c249b35f518e18435ff768/897660dd88b1f2fe-2c/s640x960/885a68e25d4bac58196541714f5b9931007fe59b.pnj" width="" height="" />
+<p align="center">
+    <img width="" src="https://64.media.tumblr.com/b5ef6d7514c249b35f518e18435ff768/897660dd88b1f2fe-2c/s640x960/885a68e25d4bac58196541714f5b9931007fe59b.pnj" alt="">
+</p>
 
 <p align="center">
 : Hello! Feel Free to 𝙞𝙣𝙩𝙚𝙧𝙖𝙘𝙩 with me, I love meeting New people!<p>
