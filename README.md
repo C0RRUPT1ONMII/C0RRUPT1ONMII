@@ -5,10 +5,6 @@
 <p align="center">
 : Hello! Feel Free to 𝙞𝙣𝙩𝙚𝙧𝙖𝙘𝙩 with me, I love meeting New people!<p>
 
-
-<p align="center">
-- I'm a 𝙈𝙪𝙡𝙩𝙞𝙛𝙖𝙣𝙙𝙤𝙢.. So i can be in alot of fandoms</p>
-
 <p align="center">
 - I  can go 𝘼𝙛𝙠 𝘼𝙡𝙤𝙩 without warning,So I apologize for that</p>
 
