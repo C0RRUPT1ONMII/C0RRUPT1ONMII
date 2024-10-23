@@ -6,7 +6,7 @@
 : Hello! Feel Free to 𝙞𝙣𝙩𝙚𝙧𝙖𝙘𝙩 with me, I love meeting New people!<p>
 
 <p align="center">
-- I  can go 𝘼𝙛𝙠 𝘼𝙡𝙤𝙩 without warning,So I apologize for that</p>
+- I  can go 𝘼𝙛𝙠 𝘼𝙡𝙤𝙩 without warning, So I apologize for that</p>
 
 <p align="center">
 - If your a 𝙋𝙧𝙤𝙨𝙝𝙞𝙥𝙥𝙚𝙧, 𝙏𝙘𝙤𝙖𝙖𝙡 and a 𝙊𝙗𝙨𝙚𝙨𝙨𝙞𝙫𝙚 𝙎𝙩𝙧𝙚𝙖𝙢𝙚𝙧 𝙊𝙫𝙚𝙧𝙡𝙤𝙖𝙙 fan..</p>
@@ -20,7 +20,7 @@ You can 𝙖𝙨𝙠 𝙢𝙚 𝙛𝙤𝙧 𝙞𝙣𝙨𝙥𝙤, I have no probl
 
 <p align="center">
 - if you wanna know more about me
-then read 𝙢𝙮 𝙡𝙞𝙣𝙠𝙨 if you want too <3</p>
+then read 𝙢𝙮 𝙡𝙞𝙣𝙠𝙨 if you want too !! <3</p>
 
  <p align="center">
   <img src="https://64.media.tumblr.com/4335d38004b400a620d750d107ebaf47/a9c54d42c93c26ae-46/s250x400/576a03b59bb96284526820b44470c24016d946ed.gifv" alt="" />
