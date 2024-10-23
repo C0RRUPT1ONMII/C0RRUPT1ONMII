@@ -13,6 +13,10 @@
 <p align="center">
  Please 𝘿𝙊 𝙉𝙊𝙏 int with me.</p>
 
+ <p align="center">
+  <img src="https://64.media.tumblr.com/4335d38004b400a620d750d107ebaf47/a9c54d42c93c26ae-46/s250x400/576a03b59bb96284526820b44470c24016d946ed.gifv" alt="" />
+</p>
+
 <p align="center">
 - Do 𝙉𝙊𝙏 𝘾𝙊𝙋𝙔 my skins.. This happends all the time, Mostly on Spanish Server</p>
 <p align="center">
