@@ -14,7 +14,7 @@
  Please 𝘿𝙊 𝙉𝙊𝙏 int with me.</p>
 
 <p align="center">
-- Do 𝙉𝙊𝙏 𝘾𝙊𝙋𝙔 my skins.. This happends all the time, Mostly on Spanish Server</p>
+- Don't 𝘾𝙊𝙋𝙔 my skins.. This happends all the time, Mostly on Spanish Server</p>
 <p align="center">
 You can 𝙖𝙨𝙠 𝙢𝙚 𝙛𝙤𝙧 𝙞𝙣𝙨𝙥𝙤, I have no problem with that!</p> 
 
