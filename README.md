@@ -22,8 +22,5 @@ You can 𝙖𝙨𝙠 𝙢𝙚 𝙛𝙤𝙧 𝙞𝙣𝙨𝙥𝙤, I have no probl
 - if you wanna know more about me
 then read 𝙢𝙮 𝙡𝙞𝙣𝙠𝙨 if you want too !! <3</p>
 
- <p align="center">
-  <img src="https://64.media.tumblr.com/4335d38004b400a620d750d107ebaf47/a9c54d42c93c26ae-46/s250x400/576a03b59bb96284526820b44470c24016d946ed.gifv" alt="" />
-</p>
 
 
