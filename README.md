@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-: Hello! Feel Free to 𝙞𝙣𝙩𝙚𝙧𝙖𝙘𝙩 with me, I love meeting New people!<p>
+: Hello! Feel Free to 𝙞𝙣𝙩𝙚𝙧𝙖𝙘𝙩 with me, I love meeting New people, Cuddles are allowed too!<p>
 
 <p align="center">
 - I  can go 𝘼𝙛𝙠 𝘼𝙡𝙤𝙩 without warning, So I apologize for that! :'v</p>
