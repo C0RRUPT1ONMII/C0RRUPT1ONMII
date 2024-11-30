@@ -1,26 +1,12 @@
 <p align="center">
-    <img width="410" src="https://64.media.tumblr.com/ea40bc612ef5d993ef77c1579e71041d/e21997953f3d61a4-f7/s500x750/d92b861e95b8ae19866e6e72fd19480449d87a36.pnj" alt="">
+    <img width="" src="https://64.media.tumblr.com/7b9220d92697ed19be2db6a7f573dc7d/456954827ee85a40-e4/s640x960/ddff999ee054f1e484749880066a3f838935835e.pnj" alt="">
 </p>
+<p align="center">
+    <img width="" src="https://64.media.tumblr.com/96cda73d2bba5c976754733e7105ef36/456954827ee85a40-47/s1280x1920/6d30ded5995024170028d06da5435a566a2f9daa.pnj"
 
 <p align="center">
-: Hello! Feel Free to 𝙞𝙣𝙩𝙚𝙧𝙖𝙘𝙩 with me, I love meeting New people, Cuddles are allowed too!<p>
-
+    <img width="" src="https://64.media.tumblr.com/525d1fe8e293a7efc4a56ee487b12f56/456954827ee85a40-5a/s640x960/84e3f80bc0619909785cec3de63726a39c7a7771.pnj" alt="">
+</p>
 <p align="center">
-- I  can go 𝘼𝙛𝙠 𝘼𝙡𝙤𝙩 without warning, So I apologize for that! :'v</p>
-
-<p align="center">
-- If your a 𝙋𝙧𝙤𝙨𝙝𝙞𝙥𝙥𝙚𝙧, 𝙏𝙘𝙤𝙖𝙖𝙡 and a 𝙊𝙗𝙨𝙚𝙨𝙨𝙞𝙫𝙚 𝙎𝙩𝙧𝙚𝙖𝙢𝙚𝙧 𝙊𝙫𝙚𝙧𝙡𝙤𝙖𝙙 fan..</p>
-<p align="center">
- Please 𝘿𝙊 𝙉𝙊𝙏 int with me.</p>
-
-<p align="center">
-- Don't 𝘾𝙊𝙋𝙔 my skins.. This happends all the time, Mostly on Spanish Server</p>
-<p align="center">
-You can 𝙖𝙨𝙠 𝙢𝙚 𝙛𝙤𝙧 𝙞𝙣𝙨𝙥𝙤, I have no problem with that!</p> 
-
-<p align="center">
-- if you wanna know more about me
-then read 𝙢𝙮 𝙡𝙞𝙣𝙠𝙨 if you want too !! <3</p>
-
-
-
+    <img width="" src="https://64.media.tumblr.com/45f1dbf3a955a0c7ab8822be9c2ce146/456954827ee85a40-61/s640x960/4aac9c2b757d6c96d2b6cccb235fd3ce1becedcb.pnj" alt="">
+</p>
