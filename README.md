@@ -1,5 +1,5 @@
 <p align="center">
-    <img width="500" src="https://64.media.tumblr.com/7b9220d92697ed19be2db6a7f573dc7d/456954827ee85a40-e4/s640x960/ddff999ee054f1e484749880066a3f838935835e.pnj" alt="">
+    <img width="550" src="https://64.media.tumblr.com/7b9220d92697ed19be2db6a7f573dc7d/456954827ee85a40-e4/s640x960/ddff999ee054f1e484749880066a3f838935835e.pnj" alt="">
 
 </p>
 <p align="center">
@@ -12,5 +12,5 @@
 
 
 <p align="center">
-    <img width="500" src="https://64.media.tumblr.com/45f1dbf3a955a0c7ab8822be9c2ce146/456954827ee85a40-61/s640x960/4aac9c2b757d6c96d2b6cccb235fd3ce1becedcb.pnj" alt="">
+    <img width="550" src="https://64.media.tumblr.com/45f1dbf3a955a0c7ab8822be9c2ce146/456954827ee85a40-61/s640x960/4aac9c2b757d6c96d2b6cccb235fd3ce1becedcb.pnj" alt="">
 </p>
